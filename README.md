@@ -1,4 +1,4 @@
-### Hey, I"m Cameron.
+### Hey, I'm Cameron.
 
 I'm an engineer, investor, and entrepreneur.
 
